@@ -1,0 +1,1 @@
+# AI-Powered-Dynamic-Banner-and-Video-Generation-for-Promotions
